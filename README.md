@@ -60,5 +60,5 @@ Além da tecnologia, gosto de:
 
 ## 📫 Vamos nos conectar?
 
-- [LinkedIn](www.linkedin.com/in/lucas-aguiar)
+- [LinkedIn](http://linkedin.com/in/lucas-aguiar)
 - [E-mail](mailto:lucasnaguiar@outlook.com)
